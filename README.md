@@ -4,4 +4,4 @@ stonks intensifies
 
 Extreme stonks
 
-Just being gay
+Perfect
