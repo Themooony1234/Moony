@@ -4,4 +4,4 @@ stonks intensifies
 
 Extreme stonks
 
-Perfect
+Perfect now
